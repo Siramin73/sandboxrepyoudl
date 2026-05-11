@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-11 13:03 IR
+- 🗜️ [details.zip.001](https://github.com/Siramin73/sandboxrepyoudl/raw/main/dl/details.zip.001) `183KB`
+
+---
+
+
 ### 📅 2026-05-11 09:27 IR
 - 🗜️ [Why_AI_Chips_Made_In_The_U.S._Are_Being_Sent_To_Taiwan_—_Creating_A_Major_Bottleneck.mp4.zip.001](https://github.com/Siramin73/sandboxrepyoudl/raw/main/dl/Why_AI_Chips_Made_In_The_U.S._Are_Being_Sent_To_Taiwan_%E2%80%94_Creating_A_Major_Bottleneck.mp4.zip.001) `56.3MB`
 
