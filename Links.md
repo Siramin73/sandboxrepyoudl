@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-12 04:18 IR
+- 🗜️ [Student_Facing_Disciplinary_Action_For_Exposing_Classmates’_Illiteracy.mp4.zip.001](https://github.com/Siramin73/sandboxrepyoudl/raw/main/dl/Student_Facing_Disciplinary_Action_For_Exposing_Classmates%E2%80%99_Illiteracy.mp4.zip.001) `76.3MB`
+
+---
+
+
 ### 📅 2026-05-11 23:43 IR
 - 🗜️ [NEW_DETAILS__Trump_sends_FIERY_message_to_Iran.mp4.zip.001](https://github.com/Siramin73/sandboxrepyoudl/raw/main/dl/NEW_DETAILS__Trump_sends_FIERY_message_to_Iran.mp4.zip.001) `23.8MB`
 
