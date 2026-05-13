@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-13 21:54 IR
+- 🗜️ [Has_Taking_the_Perfect_Photo_Ruined_Tourism_in_“The_Spectacle_____The_New_Yorker_Documentary.mp4.zip.001](https://github.com/Siramin73/sandboxrepyoudl/raw/main/dl/Has_Taking_the_Perfect_Photo_Ruined_Tourism_in_%E2%80%9CThe_Spectacle_____The_New_Yorker_Documentary.mp4.zip.001) `50.8MB`
+
+---
+
+
 ### 📅 2026-05-13 21:32 IR
 - 🗜️ [Trump_arrives_in_China_for_summit_with_Xi_Jinping___Special_Report.mp4.zip.001](https://github.com/Siramin73/sandboxrepyoudl/raw/main/dl/Trump_arrives_in_China_for_summit_with_Xi_Jinping___Special_Report.mp4.zip.001) `68.2MB`
 
